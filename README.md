@@ -1,9 +1,10 @@
 <div align="center">
 
-<img src="https://i.pinimg.com/originals/d8/b4/03/d8b403710ab75dc4541ae20ae6bdd188.gif" alt="Me!!" width=400 hight=400>
-  
+
 "oh! look who came to see me right now, and out of anyone its you. Welcome here then!"
 ---
+
+ ![](https://komarev.com/ghpvc/?username=2RedStainz&style=plastic&color=624cb2&label=ik+u+saw+this!)
 
 >~~"i love all of my friends Uwu, im kaito sama!!!! kyaaa-"~~  ***no*** 🙃....
 
