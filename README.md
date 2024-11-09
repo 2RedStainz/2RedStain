@@ -12,6 +12,8 @@ i am mostly called *Kaito*, but if yk my other names u can call me with those to
 
 <img src="https://i.pinimg.com/564x/a2/a7/44/a2a744102a4901177a4491f6bd72792e.jpg" alt="Me!!" width=600 hight=600>
 
+Guys i swear i might be the first person to ever know this fandom on ponytown??? yay very great
+
 ---
 
 </div>
