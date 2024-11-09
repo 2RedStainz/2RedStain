@@ -1,7 +1,7 @@
 <div align="center">
 
 
-"oh! look who came to see me right now, and out of anyone its you. Welcome here then!"
+"GUESS WHAT A NEW FANDOM UGHH!! >:( "
 ---
 
  ![](https://komarev.com/ghpvc/?username=2RedStainz&style=plastic&color=624cb2&label=ik+u+saw+this!)
@@ -10,9 +10,7 @@
 
 i am mostly called *Kaito*, but if yk my other names u can call me with those too idm!
 
-<img src="https://i.pinimg.com/736x/2d/cb/0c/2dcb0cb0e1ad0d66538043cdfb59b647.jpg" alt="Me!!" width=400 hight=400>
-
-i love to cosplay as furina alot.. yeah and i am a MultiFandom Person
+<img src="https://i.pinimg.com/564x/a2/a7/44/a2a744102a4901177a4491f6bd72792e.jpg" alt="Me!!" width=600 hight=600>
 
 ---
 
